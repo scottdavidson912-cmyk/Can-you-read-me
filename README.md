@@ -1,0 +1,1 @@
+The only way to know if you have the money is to ask them to pay you back the money that you borrowed from them
